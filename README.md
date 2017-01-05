@@ -1,2 +1,0 @@
-# andreavazquez.io
-# andreavazquez.io
